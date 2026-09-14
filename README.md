@@ -1,0 +1,1 @@
+▶️my portfolio is live at my repository name just copy these {https://urs-techtru.github.io} and the site is open , either option copy paste the code in vs and open with live server or browser logo then also output can opens⏸️
